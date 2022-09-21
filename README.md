@@ -1,4 +1,3 @@
-## Портфолио  
 # Куклина Екатерина
 ![8image](https://user-images.githubusercontent.com/113793233/191590835-4acb09a2-402e-4d30-bcba-8ea759c7291d.jpg)
 
